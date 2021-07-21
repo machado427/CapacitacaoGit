@@ -3,5 +3,5 @@
 
 Capacitação promovida pela Cetec Capacitações - Certro Paula Souza
 
-Realização: Julho/2021
+Realização: 07/2021 até 08/2021
 -------------------------------------------------------------------
